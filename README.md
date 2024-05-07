@@ -4,7 +4,7 @@
 Axen jest globalnym brokerem. Platforma prowadzi transakcje online na giełdzie. Obecne biuro znajduje się w Londynie, w Wielkiej Brytanii. Jeśli chcesz kupić cenne aktywa, broker powie Ci, gdzie znaleźć sprzedawcę do negocjacji transakcji. W trakcie swojej działalności firma brokerska uzyskała doskonałe wyniki i ogromną liczbę klientów z całego świata. Można to zweryfikować na podstawie opinii o Axen w mediach społecznościowych. Z tego jasno wynika, że broker inwestycyjny ma wiarygodną reputację, wykazując wysokie osiągnięcia w jakości usług. 
 
 ## Opinie o Axen
-Zaleca się rejestrację w niezawodnej usłudze. Nie jest zbyteczne, aby zapytać o obecność licencji. Opinie o Axen w różnych językach są swobodnie dostępne. Wśród popularnych stron znajdują się Medium, Reddit, Blogspot i inne.
+Zaleca się rejestrację w niezawodnej usłudze. Nie jest zbyteczne, aby zapytać o obecność licencji. Opinie o Axen w różnych językach są swobodnie dostępne. Wśród popularnych stron znajdują się [Medium](https://medium.com/@axe_n/axen-opinia-publiczna-i-recenzje-broker%C3%B3w-404f8fd7f833), [HackMD](https://hackmd.io/@Axen/BkbiMsDfA) i inne.
 Autorzy opinie pochlebnie wypowiadają się o korzystnych warunkach i innych zaletach firmy brokerskiej:
 * legalna działalność;
 * możliwość nauczenia się, jak operować cennymi aktywami;
